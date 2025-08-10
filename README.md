@@ -16,7 +16,7 @@
 ---
 > Insanity.
 
-— Mona the Octocat
+— Kitso
 
 # About me
 Hey, I'm lolzkitso, or just kitso, and I am a small Roblox content maker.
